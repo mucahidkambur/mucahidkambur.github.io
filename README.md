@@ -1,1 +1,0 @@
-# mucahitkambur.github.io
